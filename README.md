@@ -1,3 +1,3 @@
-## Welcome to The Modern Multilingual 
+## 天天向上: Chinese Word of the Da‪y‬
 
-http://themodernmultilingual.github.io
+https://taniay21.github.io/themodernmultilingual/index.html
